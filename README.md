@@ -1,2 +1,3 @@
 ## CHECKLIST 
-![изображение](https://user-images.githubusercontent.com/84504889/119117086-8d329b80-ba31-11eb-93e8-2267a0533894.png)
+![изображение](https://user-images.githubusercontent.com/84504889/119937355-4bef3e00-bf93-11eb-9165-b811e268881c.png)
+
